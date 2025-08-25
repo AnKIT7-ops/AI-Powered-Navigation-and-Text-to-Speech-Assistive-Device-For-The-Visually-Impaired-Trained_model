@@ -1,0 +1,1 @@
+# AI-Powered-Navigation-and-Text-to-Speech-Assistive-Device-For-The-Visually-Impaired-Trained_model
